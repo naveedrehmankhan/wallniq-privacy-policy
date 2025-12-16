@@ -1,0 +1,1 @@
+# wallniq-privacy-policy
